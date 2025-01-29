@@ -113,7 +113,7 @@ Author
 
 Rishi Anand
 
-LinkedIn: Your Profile
+Email : rishianandv@gmail.com
 
 
 
